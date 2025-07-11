@@ -1,4 +1,4 @@
-# 🕶️ Esenyurt Escort – Hızlı, Güvenli ve Gizli Hizmetler 🌟
+# 🚀 Esenyurt Escort – Hızlı, Güvenli ve Gizli Hizmetler 🕶️
 
 [![TIKLA SİTEYE GİT](reklam.png)](https://t.me/alvannis)
 
